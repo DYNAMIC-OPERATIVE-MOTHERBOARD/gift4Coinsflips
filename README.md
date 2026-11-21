@@ -9,4 +9,6 @@
 
 ◜ ͜ །　info　![](https://64.media.tumblr.com/6905024411fc814c44bbc6eba03f53f7/94e40ae192c2ff4d-91/s75x75_c1/c53baa359d81b8e76e9d8fb2215e8b2c388e202a.gifv)　info　ꔫ◞ ![](https://64.media.tumblr.com/e746cf4355793130455c0a96aa96b35e/2c26ab6ddd76e331-12/s75x75_c1/25f73d7ca281db155f0b7ef6d5fcef06545d8cf9.gifv)　info　᎖　info　⌓⌓ ⊂⊱　info　　![](https://64.media.tumblr.com/73c1d04a8bd29b4ec213642e33e4196a/94e40ae192c2ff4d-92/s75x75_c1/bfe9d9572e48ed445a1aef64b6c0b9155a7335f7.gifv)　﹐info　⊰⊃ ⏝⏝　꒰　info　꒱ 。
 
+layout made by [D.O.M.!](https://github.com/DYNAMIC-OPERATIVE-MOTHERBOARD)
+
 <img src="https://64.media.tumblr.com/bdf4e235adc4e427d9a27681164a29b8/93af1eb458f816a8-12/s2048x3072/d787d9f178f99a4bf62d9cd2c35356e2a3d07e22.pnj">
